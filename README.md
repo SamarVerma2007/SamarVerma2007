@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SamarVerma2007
-- 👀 I’m interested in Creating awesome websites 
+- 👀 I’m interested in Creating soame awesome websites 
 - 🌱 I’m currently learning web deelopment
 - 📫 How to reach me message me in gmail - samarvermaofficial@gmail.com
 
